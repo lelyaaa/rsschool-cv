@@ -26,6 +26,6 @@ Experience
 ** Educational Project "We are the Future" **
 Project for students and teachers, easy to track all assignments and new quizzes
 
-2020 - Present
+2020 - Present 2021
 
 ** Ecomm company "My Dream"
