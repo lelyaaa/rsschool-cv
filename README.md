@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lelyaaa.github.io/rsschool-cv/
